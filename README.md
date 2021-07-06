@@ -1,1 +1,1 @@
-# rsschool-cv
+https://LiliaTi.github.io/rsschool-cv/cv
